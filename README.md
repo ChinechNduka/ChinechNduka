@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ChinechNduka
 - 👀 I’m interested in Digitalizing Business Solution Systems
-- 🌱 I’m currently learning Digital Marketing
+- 🌱 I’m a Digital Marketer, Project Manager and Digital Solutions Expert.
 - 💞️ I’m looking to collaborate on Building Digital Systems For Business and Organizations
 - 📫 How to reach me chinechnuel@gmail.com
 
