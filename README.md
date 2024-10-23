@@ -4,7 +4,7 @@
 **ChinechNduka/ChinechNduka** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile. -->
 
 # 💫 About Me:
-- 🔭 I am currently building a digital transformation company<br>- 👯 I am looking to work with businesses, start-ups and brands ready to leverage technology to transform their processes and 10X their growth<br> - 🤔I am looking for for help with building an all-in-one platform for SME inventory and sales management<br>- 🌱 I am currently learning how to build a SaaS company <br>- 💬 Ask me about anything Marketing Technology<br>- 📫 Reach me on nech@nuxalle.com<br>- ⚡I watch movies like I am reading a book<br>
+- 🔭 I am currently building a digital transformation company<br>- 👯 I am looking to collaborate with brands ready to leverage technology to transform their processes and 10X their growth<br> - 🤔I am looking for for help with building an all-in-one platform for SME inventory and sales management<br>- 🌱 I am currently learning how to build a SaaS company <br>- 💬 Ask me about anything Marketing Technology<br>- 📫 Reach me on nech@nuxalle.com<br>- ⚡I watch movies like I am reading a book<br>
 
 
 ## 🌐 Socials:
