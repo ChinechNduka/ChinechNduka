@@ -4,7 +4,7 @@
 **ChinechNduka/ChinechNduka** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile. -->
 
 # 💫 About Me:
-<br>- 🔭 I am the founder of Nuxalle a digital transformation company focused on helping African Industries achieve global dominance<br>- 👯 I am looking to collaborate with brands ready to leverage technology to transform their processes and 10X their growth<br>- 🤔I am and my team are building an all-in-one platform for business managment, join us<br>- 🌱 At present, I am learning how to build a
+<br>- 🔭 I am the founder of Nuxalle a digital transformation company focused on helping African Industries achieve global dominance<br>- 👯 I am looking to collaborate with brands ready to leverage technology to transform their processes and 10X their growth<br>- 🤔 I am and my team are building an all-in-one platform for business managment, join us<br>- 🌱 At present, I am learning how to build and run a
  Tech company <br>- 💬 Ask me about anything Marketing Technology<br>- 📫 Reach me on nech@nuxalle.com<br>- ⚡I watch movies like I am reading a book<br>
 
 
