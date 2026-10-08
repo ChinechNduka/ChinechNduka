@@ -4,8 +4,7 @@
 **ChinechNduka/ChinechNduka** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile. -->
 
 # 💫 About Me:
-<br>- 🔭 I am the founder of Nuxalle, a digital transformation company focused on helping African Industries achieve global dominance<br>- 👯 I am looking to collaborate with brands ready to leverage technology to transform their processes and 10X their growth<br>- 🤔 I am and my team are building an all-in-one platform for business managment, join us<br>- 🌱 At present, I am learning how to build and run a
- global technology company<br>- 💬 Ask me about anything Marketing, Technology and Growth. I am a Master Strategist<br>- 📫 Reach me on nech@nuxalle.com<br>- ⚡I watch movies like I am reading a book<br>
+<br>- 🔭 Growth and Digital Operations and Strategy leader with 8+ years of experience. <br>- ⚙️ I connect marketing strategy to the systems underneath it: content operations, martech, automation and measurement.  <br>- 📈 Campaigns I structured have delivered 900M+ impressions and 100M+ engagements across 35 countries. <br>- 👯 I am looking to work with brands ready to leverage technology to transform their processes and 10X their growth.<br>- 🤔 I'm learning how to change the world. <br>- 🌱 At present, I'm building tools that simplify marketing and growth processes.<br>- 💬 Ask me about martech integration and automation, CRM and sales funnel optimisation, content operations and digital growth strategy.<br>- 📫 Reach me on [LinkedIn](https://www.linkedin.com/in/chinecheremnduka/). <br>- ⚡Fun fact: I watch movies the way other people read books, so I will have notes on the plot, the pacing and the ending. Play table tennis when I am bored.<br>
 
 
 ## 🌐 Socials:
